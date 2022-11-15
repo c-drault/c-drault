@@ -1,1 +1,1 @@
-### DEV @ Société Générale 😄
+### Data Engineer at LittlebigCode 🚀 for Servier 💊
